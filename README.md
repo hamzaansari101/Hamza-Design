@@ -1,2 +1,1 @@
-Hamza Design
-about
+
